@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Titan-1409
+- 👀 I’m interested in dinosaurs, wildlife, motorsports
+- 🌱 I’m currently learning Python and HTML
+- 😄 Pronouns: He/Him
